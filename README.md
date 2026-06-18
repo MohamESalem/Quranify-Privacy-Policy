@@ -18,4 +18,4 @@ CHANGES
 Any changes to this policy will be reflected on this page.
 
 CONTACT
-Questions? Contact: mohammed.salem@lovingloyalty.com
+Questions? Contact: mohammedelsayedsalem@aucegypt.edu
