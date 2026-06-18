@@ -1,0 +1,1 @@
+# Quranify-Privacy-Policy
